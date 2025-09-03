@@ -5,10 +5,10 @@
 ### Boil
 
 - 1 cup sugar
-- 2 Cocoa powder
+- 2 Tb Cocoa powder
 - 1/4 cup (1/2 stick) butter or margarine
 - 1/4 cup milk
-- 1/2 vanilla
+- 1/2 ts vanilla
 
 ### Dry
 
