@@ -13,7 +13,7 @@
 
 - 1/4 cup (4 tbsp.) peanut butter
 - 1 1/2 cups oatmeal, uncooked
-- 1/2 cup toasted wheat germ or quick oats
+- 1/2 cup toasted wheat germ (optional)
 - 1/2 ts vanilla
 
 ## Directions
