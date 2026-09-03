@@ -1,20 +1,20 @@
-# QUICKIE COOKIES A LA STOVE TOP
+# QUICKIE COOKIES A LA STOVE TOP (Double-Batch)
 
 ## Ingredients
 
 ### Boil
 
-- 1 cup sugar
-- 2 Tb Cocoa powder
-- 1/4 cup (1/2 stick) butter or margarine
-- 1/4 cup milk
+- 2 cup sugar
+- 4 Tb Cocoa powder
+- 1/2 cup (1 stick) butter or margarine
+- 1/2 cup milk
 
 ### Dry
 
-- 1/4 cup (4 tbsp.) peanut butter
-- 1 1/2 cups oatmeal, uncooked
-- 1/2 cup toasted wheat germ (optional)
-- 1/2 ts vanilla
+- 1/2 cup (4 tbsp.) peanut butter
+- 3 cups oatmeal, uncooked
+- 1 cup toasted wheat germ or quick oats
+- 1 ts vanilla
 
 ## Directions
 
