@@ -2,10 +2,15 @@
 
 ## Ingredients
 
+### Filling
+
 - 2 cups graham cracker crumbs
 - 2 cups confectioners' sugar
 - 1 cup butter or margarine, melted
 - 1 cup peanut butter
+
+### Topping
+
 - 1 ½ cups semisweet chocolate chips
 - 4 tablespoons peanut butter
 
