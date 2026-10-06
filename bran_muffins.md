@@ -4,16 +4,16 @@ These bran muffins are delicious.
 
 ## Ingredients
 
-1 1/2 cups wheat bran
-1 cup buttermilk
-2/3 cup brown sugar
-1/3 cup vegetable oil
-1 egg
-1/2 teaspoon vanilla extract
-1 cup all-purpose flour
-1 teaspoon baking soda
-1 teaspoon baking powder
-1/2 teaspoon salt
+- 1 1/2 cups wheat bran
+- 1 cup buttermilk
+- 2/3 cup brown sugar
+- 1/3 cup vegetable oil
+- 1 egg
+- 1/2 teaspoon vanilla extract
+- 1 cup all-purpose flour
+- 1 teaspoon baking soda
+- 1 teaspoon baking powder
+- 1/2 teaspoon salt
 
 ## Directions
 
